@@ -1,1 +1,0 @@
-# BumbleBee - Media - Images & video
